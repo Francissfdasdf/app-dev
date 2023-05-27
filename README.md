@@ -11,9 +11,8 @@ Throughout the story, Gatsby is obsessed with a green light at the end of Daisy'
 2.The Plaza Hotel Confrontation:
 In the climactic scene, Gatsby, Tom, Daisy, and Nick find themselves at the Plaza Hotel. Tensions escalate as the truth about Gatsby's relationship with Daisy comes to light. The confrontation is filled with tension and emotion, highlighting the complex dynamics between the characters and the underlying themes of love, wealth, and deception.
 
-3.Fun facts about Suits:
-The role of Harvey Specter was originally written for a much older actor. However, after Gabriel Macht's audition, the creators were so impressed that they reimagined the character to fit him.
----
+3.The Plaza Hotel Confrontation:
+In the climactic scene, Gatsby, Tom, Daisy, and Nick find themselves at the Plaza Hotel. Tensions escalate as the truth about Gatsby's relationship with Daisy comes to light. The confrontation is filled with tension and emotion, highlighting the complex dynamics between the characters and the underlying themes of love, wealth, and deception.
 You can view more information about the movie using the link below   
 
 [Suits][[(https://www.warnerbros.com/movies/great-gatsby)]
